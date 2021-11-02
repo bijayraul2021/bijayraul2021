@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bijayraul2021
+- 👀 I’m Interior Contractor , my specialization is decorate Wooden Furnitures for Home, Modern Kitchen, Modern cupboard,Wooden doors, decorate room furnitures.
+- 🌱 Italian & Indian Wall Paint, Wall Papers, lights, cleaning & polishing of Sofas, carpet & flooring.
+- 💞️ I’m currently working in Jamshedpur (Jharkhand) & other project also in Mumbai (Maharashtra)
+- 📫 I’m looking to work in Residential Flats,Duplex, Homes & Offices
